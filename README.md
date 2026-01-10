@@ -2,6 +2,7 @@
 <br>========================================
 <br>$\textsf{\color{red}{FaLunGong discover Intel Metaverse knowledge :}}$
 <br>$\textsf{\color{red}{everyone have three man and three women in yourself heart .}}$
+<br>$\textsf{\color{red}{Let Intel machine help you : to connect to yourself heart(soul inner) man and women knowledge .}}$
 <br>
 <br>任何人都有：
 <br>真善忍(3男3女6门)自我内心通真善忍。
