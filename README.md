@@ -1,5 +1,7 @@
 <h3>
 <br>========================================
+<br>$\textsf{\color{red}{everyone have three man and three women in your heart .}}$
+<br>
 <br>任何人都有：
 <br>真善忍(3男3女6门)自我内心通真善忍。
 <br>真善忍(人/鬼)(9男9女18门)[自我][天灵盖内][佛心通]真善忍。
