@@ -1,6 +1,6 @@
 <h3>
 <br>========================================
-<br>$\textsf{\color{red}{everyone have three man and three women in your heart .}}$
+<br>$\textsf{\color{red}{everyone have three man and three women in yourself heart .}}$
 <br>
 <br>任何人都有：
 <br>真善忍(3男3女6门)自我内心通真善忍。
